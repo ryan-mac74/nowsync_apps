@@ -1,1 +1,0 @@
-# nowsync_apps
